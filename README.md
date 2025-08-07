@@ -4,9 +4,9 @@ The first day of our induction program began with a visit to the Gurdwara Sahib 
 
 Inside the Gurdwara Sahib, the Kirtani Jatha recited soothing shabads. Although I missed the live session, I learned from my friends that the Kirtani Jatha deeply moved the audience with their melodious voices. The experience was a blend of spiritual reflection and cultural reverence.
 Some of the shabads were 
--Satgur Hoye Dyal
--Kar Kirpa Tere Gun Gawan
--Apni Bhagti Laye..
+- Satgur Hoye Dyal
+- Kar Kirpa Tere Gun Gawan
+- Apni Bhagti Laye..
 
 After the programme at the college Gurudwara Sahib came to an end, Tea and snacks were arranged outside in hostel no.2 
 bread pakodas, Gulab jamun, and cold drinks were being distributed to the guests.
