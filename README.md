@@ -107,3 +107,10 @@ This was a practical session where we learned:
 ### **Summary – Day 2**
 
 Day 2 provided a perfect blend of wellness awareness, creativity, and technical learning. The GitHub session especially stood out for introducing us to real-world tools early in our journey.
+## Day 3: Expert Lecture by Dr. Jaswinder Singh (IAPT Incharge) on Examining the Inner and Ethical Self
+An engaging and thought-provoking session in the auditorium kicked off the day. In order to encourage us to have a moment of quiet and introspection, Dr. Jaswinder Singh started by asking each student to close their eyes and focus inward. Following this quick meditation, he inquired about our feelings and observations. Some students reported a deep focus in the middle of their forehead, while others pictured future success or cosmic journeys. One student acknowledged that their mind was unable to settle, while another pictured Guru Nanak Dev Ji.
+
+Dr.Jaswinder Singh used Gurbani, particularly the verse from Japji, to expertly relate these experiences to both scientific explanations and spiritual insights.
+Going further, he presented different forms of meditation and offered insights from his own experiments and self-discovery experiences. He examined his own development as a speaker and disclosed that he approached every speaking engagement with sincerity and zeal, treating it as a test. He told us how fortunate we are to have such committed teachers guiding us and thanked the GNDEC faculty for their ongoing support.
+
+He told a heartwarming tale about a girl who went to a job interview near the end. She gave an honest response when asked her father's name. "You've been chosen," the interviewer declared as soon as he got up. She was moved by this and silently acknowledged the greatness of her father, a man she had not previously fully comprehended. The narrative reaffirmed his point about the importance of
